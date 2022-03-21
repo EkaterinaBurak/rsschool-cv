@@ -39,3 +39,8 @@ December 2015 – Present Lawyer in Minsk Regional Bar Assosiation.
 Communication with the customer, customer needs identification, consulting, systems calculation, development of law documentation, protection of clients' interests in civil and criminal cases.
 
 ---
+
+## Education
+
+Sept 2013 – June 2014 Belarusian State University – Master’s degree of Law.
+Sept 2008 – June 2013 Belarusian State University – Law graduate.
