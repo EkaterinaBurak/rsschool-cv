@@ -21,7 +21,7 @@
 
 ### Languages
 
-- English - В1
+- English - В2
 - Russian - native
 - Belarussian - native
 
